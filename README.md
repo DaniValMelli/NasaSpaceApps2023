@@ -3,7 +3,7 @@
 Slides:
 https://www.canva.com/design/DAFwm0z-hns/JymAzFod3uQJcKeAh6K9ww/view?utm_content=DAFwm0z-hns&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink
 
-Video:
+Video: enlace video 3 minutos
 
 
 Demo:
